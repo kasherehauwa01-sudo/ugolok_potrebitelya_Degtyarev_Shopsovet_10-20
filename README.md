@@ -1,0 +1,1 @@
+# ugolok_potrebitelya_Degtyarev_Shopsovet_10-20
